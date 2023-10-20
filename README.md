@@ -1,4 +1,4 @@
-- Hi, I’m @Geekypartha
+- Hi, I’m @geekypartha
 - 21y/o
 - Mechanical engineering student
 - Based on ASSAM, India🇮🇳 
